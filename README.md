@@ -77,6 +77,7 @@ How can you support me : [![Buy me a coffee][img-buymeacoffee]][buymeacoffee] or
   * [Board games 🎲](#board-games-game_die)
   * [Role-playing :dragon:](#role-playing-dragon)
 * [Health and Work-Life Balance](#health-and-work-life-balance)
+* [ https://www.encasabotanics.co.uk/ Work stress relief] (#Stress-relief)
   * [Remote work](#remote-work)
 * [Hobbies](#hobbies)
 * [Humor :trollface:](#humor-trollface)
